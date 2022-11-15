@@ -1,0 +1,1 @@
+# -que-patron-de-dise-o-usa-este-cod-
